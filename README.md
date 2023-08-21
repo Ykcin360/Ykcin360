@@ -22,8 +22,8 @@ Here are some ideas to get you started:
 - 💌 How to reach me: nickyrakotoarimanana@gmail.com
 
 <br><br>
-More about me? you can directly contact me at 
-📞 Phone: +261 32 79 030 02
+More about me? you can directly contact me at <br>
+📞 Phone: +261 32 79 030 02 <br>
 #️⃣ Linkedin: https://www.linkedin.com/in/nicky-rakotoarimanana-488025262/
 <br><br>
 
